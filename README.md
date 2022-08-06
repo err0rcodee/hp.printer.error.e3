@@ -1,6 +1,6 @@
 # HP Printer Error e3
 
-[![HP Printer Error e3](get-detail.png))](https://computersolve.com/hp-printer-error-e3/)
+[![HP Printer Error e3](get-detail.png)](https://computersolve.com/hp-printer-error-e3/)
 
 There are some users who have faced printing issues while taking print outs. They say that whenever they try to take a hard copy of the document, **[HP Printer Error e3](https://github.com/err0rcodee/hp.printer.error.e3)** pops up on the screen. Any problems with its external and internal effects will result in a strange code highlight on the screen. If still your problem is not resolved then you can get rid of your problem by visiting the link given by us **[HP Printer Error e3](https://github.com/err0rcodee/hp.printer.error.e3)**.
 
